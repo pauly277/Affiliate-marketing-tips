@@ -1,4 +1,5 @@
 ![money-](https://user-images.githubusercontent.com/93150564/138763920-6b3649c4-3ea1-4813-9423-713696f9fdfe.jpg)
+
 STOP! Go no further...
 
 
@@ -122,5 +123,5 @@ We considered everything and is designed with you in mind taking into considerat
 I hope you enjoy my assembly of Affiliate marketing paraphernalia as much as I did bringing it to you.
 
 
-
+https://www.HomeBizGamePlan.com/?rd=rl3E0ZLO
 
