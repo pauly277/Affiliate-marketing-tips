@@ -123,5 +123,5 @@ We considered everything and is designed with you in mind taking into considerat
 I hope you enjoy my assembly of Affiliate marketing paraphernalia as much as I did bringing it to you.
 
 
-https://www.HomeBizGamePlan.com/?rd=rl3E0ZLO
+https://join-the-crowd.com/
 
